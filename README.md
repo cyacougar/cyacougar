@@ -8,3 +8,5 @@ SANMOS 4 LYFEEE!!!
 
 read my straw page.... OH AND I FORGOT TO SAY ON IT THAT I AM *VERY* SARCASTIC AND HAVE CRUDE HUMOR , tell me if u dont fw that btw
 
+ill put it here incase  sum of yall dont see it... somehow....
+https://69sm0kedya.straw.page
