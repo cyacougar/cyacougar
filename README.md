@@ -1,6 +1,8 @@
 HII!!
+im a fanartist and madcom fanatic!! i also code things sometimes
+i self-project onto deimos alot lawl so uhhh expect that
 
-idk what to put here so im just gonna put my faves here
+idk what to put here so...
 
 SANMOS 4 LYFEEE!!!
 
